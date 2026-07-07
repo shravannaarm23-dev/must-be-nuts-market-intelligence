@@ -24,7 +24,8 @@ To identify growth opportunities across distribution, digital presence, and comp
 
 
 
-## About Me
+## Contact Me
 
 Shravan N V
-Interested in Business Analysis, Product Strategy, and Operations Excellence
+shravan.naarm23@gmail.com
+
