@@ -21,7 +21,7 @@ To identify growth opportunities across distribution, digital presence, and comp
 * Actionable recommendations
 
 ## Live Project
-
+https://shravannaarm23-dev.github.io/must-be-nuts-market-intelligence/
 
 
 ## Contact Me
